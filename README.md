@@ -2,7 +2,7 @@
 
 Hello, and welcome to our website! We are high school students at [Santa Clara High](https://santaclara.schoolloop.com/) and part of the [49ers STEM Leadership Institute](https://svefoundation.org/49ers-stem-leadership-institute/). This is soon to be where our project for Synopsys Science Fair 2020 will be hosted, so this page is temporary.
 
-![Hello :)](https://photos.app.goo.gl/ZvGMNb6Z2wWLgeKr6)
+![Hello :)](https://photos.google.com/share/AF1QipM2JIWXjbgEgpFB_llDkUBhRL9vVUDdD8td_ly5E97V0Z2IRlMR4KK4kcFgaLmkRw/photo/AF1QipPOgIM68_HZnsUiw5-kwffcKDCHDnT17B7b8hx_?key=WDE5TlRsTVVmS09MczJqS01hb1JBNmFiX0VJZUdR)
 
 ### Themes
 
